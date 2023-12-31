@@ -1,5 +1,5 @@
 # RainbowMyslee
 ## 🌈💊
-- YouTubeㅣ`@RainbowMyslee`
-- Discordㅣ`rainbowmyslee`
-- Ignㅣ`RainbowMyslee`
+- **YouTube**ㅣ`@RainbowMyslee`
+- **Discord**ㅣ`rainbowmyslee`
+- **Ign**ㅣ`RainbowMyslee`
